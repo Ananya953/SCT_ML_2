@@ -69,3 +69,9 @@ Learned to visualize clusters and interpret them
 (https://github.com/Ananya953/SCT_ML_2.git)
 
 ---
+
+**Ananya T C**
+4th year(Akshaya Institution of Technology)
+ananyagowda2710@gmail.com
+Intern at SkillCraft Technology
+@SCT #SCT
